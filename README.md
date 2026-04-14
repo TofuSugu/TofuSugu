@@ -1,3 +1,6 @@
+<img width="375" height="63" alt="image" src="https://github.com/user-attachments/assets/d3e7eaeb-7fb7-4683-a4cc-4ea60aa5f7fe" /> my wife/ gf / world
+
+
                             Hi call me Tofu, I love Suguru Geto! I'm a fat simp . . .
  
          Only On ponytown where you can find this account or by random spam account.
