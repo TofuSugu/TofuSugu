@@ -50,3 +50,6 @@ my wife/ gf / world
      Sitting with: Zuu , Jr , Lili , Ramen , or by myself!
 
      Not a very chatty person either.
+
+
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/95ba512a-a29f-49d5-be6f-0fde4f062a8d" />
