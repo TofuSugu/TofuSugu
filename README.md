@@ -1,8 +1,13 @@
-<img width="375" height="63" alt="image" src="https://github.com/user-attachments/assets/d3e7eaeb-7fb7-4683-a4cc-4ea60aa5f7fe" /> my wife/ gf / world
+
+<div align="center">
+<img width="375" height="63" alt="image" src="https://github.com/user-attachments/assets/d3e7eaeb-7fb7-4683-a4cc-4ea60aa5f7fe" />
+
+<div align="center">
+my wife/ gf / world
 
 [wife GITHUB](https://github.com/xzuzui)
 
-
+<div align="center">
 <img width="165" height="126" alt="image" src="https://github.com/user-attachments/assets/b66c8e07-0952-46da-9f69-7775c4924720" />
 
 
