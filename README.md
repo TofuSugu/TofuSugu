@@ -3,6 +3,10 @@
 [wife GITHUB](https://github.com/xzuzui)
 
 
+<img width="165" height="126" alt="image" src="https://github.com/user-attachments/assets/b66c8e07-0952-46da-9f69-7775c4924720" />
+
+
+
                             Hi call me Tofu, I love Suguru Geto! I'm a fat simp . . .
  
          Only On ponytown where you can find this account or by random spam account.
