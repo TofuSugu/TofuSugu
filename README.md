@@ -29,3 +29,24 @@ my wife/ gf / world
      Wanna contact me for a reason? My disc: fih_tofu
 
      I love Zuu, i met her on the 10/04/2026 guys shes my crush >///<
+
+<img width="735" height="318" alt="image" src="https://github.com/user-attachments/assets/f789aee3-fc72-4ebc-a1ef-a5db5a12c5fc" />
+
+
+     I dont normally like to c*h , mostly because I am too angry most of the time and don't wanna take it out on people
+
+     Whispering me before coming to me is the best way of friending me, and probably the safest !
+
+     I sit at the Jjk spot , GenshinImpact , or Mha ! !
+
+     Don't like drama so don't think Imma be apart of what ever you got yourself into ! ! 
+
+     But I do like reading it . . .
+
+<img width="1200" height="300" alt="image" src="https://github.com/user-attachments/assets/3a60b6db-d43a-4ae0-b7a6-c08fd370d9ce" />
+
+     I am always afk or offtab on ponytown.
+
+     Sitting with: Zuu , Jr , Lili , Ramen , or by myself!
+
+     Not a very chatty person either.
