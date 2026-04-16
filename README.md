@@ -10,6 +10,9 @@ my wife/ gf / world
 <div align="center">
 <img width="165" height="126" alt="image" src="https://github.com/user-attachments/assets/b66c8e07-0952-46da-9f69-7775c4924720" />
 
+<div align="center">
+Friends: Zuu , Lili , Jr , Mizu , Ramen . Rain ,  kurzton , 𝙽𝚒𝚕𝚘𝚞 , nero .
+
 
  
          Hi call me Tofu, I love Suguru Geto! I'm a fat simp . . .
