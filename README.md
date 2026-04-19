@@ -6,6 +6,7 @@
 my wife/ gf / world
 
 [wife GITHUB](https://github.com/xzuzui)
+[AboutmeStrawpage](https://abouttofufih.straw.page/)
 
 <div align="center">
 <img width="165" height="126" alt="image" src="https://github.com/user-attachments/assets/b66c8e07-0952-46da-9f69-7775c4924720" />
